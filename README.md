@@ -1,3 +1,0 @@
-Este es un mensaje de bienvenida a mi repositorio, gracias por tener la confianza de usar mi información. Aquí podrás encontrar los archivos en los que estoy trabajando continuamente para cumplir con mis proyectos personales, puedes basarte de estos archivos para guiarte en tus trabajos.
-Cabe mencionar que estos trabajos son con fines educativos y me deslindo de cualquier mal uso que se le pueda dar a mis trabajos.
-¡¡Gracias!!
